@@ -1,5 +1,9 @@
-🎩,🎩
+## Hi 🤘
 
----
+I am devloper, I buidl. 🐸 (🎩,🎩)
 
-https://tinycats.club
+## Talk to me
+
+🐦 Twatter: [@PryceJeston](https://twitter.com/PryceJeston)
+
+👾 Discord: pryce#6969
